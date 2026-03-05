@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm 22 years old and the CEO of **Launchly** (launchly.one).<br><br>💻 I've been programming for over **10 years**, working on a wide range of projects — from early ideas to production-ready solutions.<br><br>🚀 With **Launchly**, I build digital products and solutions focused on quality, scalability, and innovation.<br><br>🤝 I'm always open to **inquiries, collaborations, and exciting projects** — feel free to reach out.
+👋 Hi, I'm 23 years old and the CEO of **Launchly** (launchly.one).<br><br>💻 I've been programming for over **10 years**, working on a wide range of projects — from early ideas to production-ready solutions.<br><br>🚀 With **Launchly**, I build digital products and solutions focused on quality, scalability, and innovation.<br><br>🤝 I'm always open to **inquiries, collaborations, and exciting projects** — feel free to reach out.
 
 
 ## 🌐 Socials:
